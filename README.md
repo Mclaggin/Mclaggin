@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mclaggin
+- 👀 I’m interested in Martial Arts, Finances, Boarding games, Fantasy books, acoustic guitar songs and rpg games.
+- 🌱 I’m currently studying Information Technology at Polish Japanese Academy. On daily basis I'm troubleshooting most of the hardware / software problems in banking industry.
+- 💞️ I’m looking to collaborate on creating usefull application. 
+- 📫 You can reach me on my linkedin: https://www.linkedin.com/in/konrad-kami%C5%84ski7/ or via e-mail: clark.kaminski@nordea.com
